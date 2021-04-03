@@ -1,0 +1,1 @@
+Take 2 bread slices and apply herb butter on both of them.Spread thin cucumber slices on one bread and cover with the other.You can sprinkle some salt and pepper.
